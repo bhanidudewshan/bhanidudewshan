@@ -4,3 +4,6 @@
 - 📫 Reach me via
 E-mail - [contact@bhanidu.eu.org](mailto:contact@bhanidu.eu.org) or  [bhaninduherath@gmail.com](mailto:bhaninduherath@gmail.com)
 Telegram - [@Bhanidu_Dewshan](https://t.me/Bhanidu_Dewshan)
+
+
+2024 - Not interested in anything 😊
